@@ -1,3 +1,3 @@
-# Has Priti Patel been sacked yet
+# Has Priti Patel been sacked yet?
 
 Find out here.
